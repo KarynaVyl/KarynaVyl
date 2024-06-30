@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KarynaVyl
+- 👀 I’m interested in Data analysis
+- 🌱 I’m currently learning it in WebAcademy
+- ⚡ Interesting fact: I have 2 dogs 🦮
